@@ -1,0 +1,2 @@
+# premium-copper-foil-glass-001-copper-foil-glass-tiffany-meth
+Tired of losing track of your glass scraps, copper foil rolls, and pattern sheets mid-project? The Copper Foil Glass Tiffany Method Planner turns your chaotic workbench into a streamlined studio.  This Notion template is purpose-built for stained glass artists using the Tiffany method. It solves the pain of scattered notes and forgotten measurement
